@@ -16,3 +16,42 @@ On top of indoor air pollution, nearly 1 out of every 15 homes in the U.S. is es
 If we can raise awareness about the risks of radon and indoor air pollutants, more and more families can start checking for it. The results in terms of saved lives could be enormous. The fun educational materials in the side bar enable you as a teacher the chance to educate on all forms of air pollution, in a manageable, enjoyable and positive way.
 
 
+Downloadable resources for teachers:
+
+
+1.	University of Illinois Extension – Teacher Resources including ice-breakers
+http://takeactiononradon.illinois.edu/resources
+
+2.	State of New Jersey, Dept of Env Protection: Radon Alert Lesson Plans & Activities
+https://www.njradon.org/school/
+
+3.	NASA Stem Engagement: Space Math III -- Problem 11, Radon Gas in the Basement
+https://www.nasa.gov/stem-ed-resources/SMIII-problem11.html
+
+4.	National Science Foundation: The Teacher-Friendly Guide to the Earth Science of the Northwest Central
+http://geology.teacherfriendlyguide.org/index.php/hazards-nc/hazards-radon-nc
+
+5.	EPA - RadTown Radon: Teacher Information
+https://www.epa.gov/radtown/radtown-radon-teacher-information
+
+6.	EPA - Radon Information for Kids, Students and Teachers
+https://www.epa.gov/radon/radon-information-kids-students-and-teachers
+
+7.	Airthings: Air For Kids – Resources for Educators
+https://airforkids.com/for-educators/
+
+8.	State of Connecticut DPH: Radon, Real Estate and You Instructor’s Manual
+https://portal.ct.gov/-/media/Departments-and-Agencies/DPH/dph/environmental_health/radon/pdf/Radonmoduleinstructorguidepdf.pdf
+
+9.	ShareMyLesson.com by AFT: Radon lesson plans
+https://sharemylesson.com/search?search_api_views_fulltext=radon
+
+10.	CDC Science Ambassador Workshop: Lurking Radon and Lung Cancer
+https://www.cdc.gov/careerpaths/scienceambassador/documents/hs-radon-lurking-and-lung-cancer-2015.pdf
+
+11.	University of Montana – Health & Medicine: Radon Lesson 1 & 2
+http://health.umt.edu/reach/documents/curriculum/radon-lesson-1.pdf
+http://health.umt.edu/reach/documents/curriculum/radon-lesson-2.pdf
+
+12.	Idaho Dept of Health & Welfare: Radon Lesson Plan for Health Educators
+https://publicdocuments.dhw.idaho.gov/WebLink/DocView.aspx?id=14531
